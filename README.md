@@ -9,4 +9,6 @@ im okay with any sort of ingame psychical touch (ex. kissing, cuddling, etc)!
 
 idm if u mw me as long as u ask first :3
 
+i get stuck on shit a lot and sometimes my game lags 'n i can't stop walking so mb if it seems like im staring at u !
+
 ure free 2 ask me any questions on my retrospring ^_^
